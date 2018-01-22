@@ -1,0 +1,1 @@
+"Got back from SB hacks today and I'm so tired cuz the drive was so long but also like I'm sad cuz it was so sunny and chill there :(. But it was such a good experience cuz I made a new friend (Kaanchana) and caught up with friends like Holly, Ananya, Rushali, and Saloni and my friend Aakash and I got Buddha bowls twice and went to the beach and it was so fun!! i love socal "
